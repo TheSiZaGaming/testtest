@@ -17,3 +17,6 @@ ee gonna break your back for a chance
 Ee gonna steal your stuff if ee can
 ee gonna win somedayyyy
 oh ee will
+eeeeeeeeeeeeeeeeeeeeeee
+oh and also please ms do not add crypto wallet 
+idk why I fillthese out
