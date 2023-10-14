@@ -35,3 +35,6 @@ SIT ME DOWN sHUT ME UPPPPPPPPPPPP
 I'll calm dwon oh oh 
 and I'll get along with you 
 tun tun tunt untunt
+I love react content so much. it isn't braindead or repetitive or anything. i hope every channel turns to a react channel.
+also please renew my shit microsoft
+I can't lose this,
